@@ -1,5 +1,10 @@
 ## Hi there 👋
 
+よろしくお願いします！
+<br>日本の勉強が大好きだ。
+<br>僕の2025年の目標はボランティアとして、日本語の例文を収集するツールを支援することです！
+
+
 <!--
 **5byuri/5byuri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
