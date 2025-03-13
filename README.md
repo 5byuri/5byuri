@@ -1,4 +1,5 @@
 ## Hi there 👋
+![2](https://github.com/user-attachments/assets/eefb55b6-a894-45fc-9df5-f226b7ba15e2)
 
 よろしくお願いします！
 <br>日本の勉強が大好きだ。
