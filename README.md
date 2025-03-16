@@ -1,5 +1,4 @@
 
-![Group 213](https://github.com/user-attachments/assets/2329ec29-044d-4a98-a67d-aedf79282954)
 ![Group 214](https://github.com/user-attachments/assets/d7c75ab9-55de-481d-bc0e-9c7993652288)
 
 
