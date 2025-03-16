@@ -1,6 +1,6 @@
 <div align="center">
 
-![Group 214](https://github.com/user-attachments/assets/d7c75ab9-55de-481d-bc0e-9c7993652288)
+![byuri-github](https://github.com/user-attachments/assets/116d754b-c935-4ec5-a6df-35ecb0a71bc5)
 
 <pre>
 よろしくお願いします！
