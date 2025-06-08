@@ -1,6 +1,7 @@
 <div align="center">
 
-![byuri-github](https://github.com/user-attachments/assets/116d754b-c935-4ec5-a6df-35ecb0a71bc5)
+![github](https://github.com/user-attachments/assets/388ee52f-30bb-40c5-845e-707dcd7bc521)
+
 
 
 
